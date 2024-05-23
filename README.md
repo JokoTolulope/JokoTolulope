@@ -11,5 +11,5 @@
 - 👯 I’m currently looking out for opportunities to leverage my skills and knowledge in data to solve problems and make an impact.
 
 
-  ### Connect with me:
+  ### Find me here :
   📫 tolulopejokosenumi@gmail.com
